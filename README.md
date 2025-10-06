@@ -1,1 +1,1 @@
-# Feira-de-Ci-ncias-2025
+# Feira-de-Ciências-2025
